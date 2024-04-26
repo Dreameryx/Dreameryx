@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Dreameryx
+- 👀 I’m interested in web3 programing
+- 🌱 I’m currently learning ...
+- 📫 How to reach me gmail: oldwigsimon99@gmail.com , ds: johanbakholstp0 , x: @Dreameryx525
